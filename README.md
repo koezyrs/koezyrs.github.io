@@ -1,1 +1,0 @@
-# koezyrs.github.io
